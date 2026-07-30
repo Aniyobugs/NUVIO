@@ -1,4 +1,4 @@
 # NUVIO
 
-ecommrece platform
-Members: Ronny , Sreeeharii , anandhu 
+ecommrece platforn 
+Members: Ronny, Sreeeharii , anandhu 
