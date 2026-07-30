@@ -1,4 +1,4 @@
 # NUVIO
 
 ecommrece platforn 
-Members: Ronny, Sreeeharii , anandhu g*y
+Members: Ronny Ass, Sreeeharii , anandhu g*y
